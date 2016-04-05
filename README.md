@@ -1,2 +1,5 @@
 # TestConflict
+<<<<<<< HEAD
 YEAH
+
+boe!
