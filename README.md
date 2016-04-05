@@ -10,7 +10,9 @@ YEAH
 Ja ja!
 
 
+
 :P
+
 
 
 boe!
@@ -20,6 +22,19 @@ boe!
 :D
 :(
 
+
 Ave!
 gegroet!
 Vale!
+
+gegroet!
+
+waaaah!
+
+
+hoi hoi hoi!
+
+stickers zijn vervelend!
+
+š
+
