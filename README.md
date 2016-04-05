@@ -27,6 +27,7 @@ Ave!
 gegroet!
 Vale!
 
+Spannend!
 gegroet!
 
 waaaah!
@@ -37,4 +38,3 @@ hoi hoi hoi!
 stickers zijn vervelend!
 
 š
-
